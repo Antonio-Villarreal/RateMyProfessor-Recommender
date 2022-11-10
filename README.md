@@ -10,5 +10,3 @@ Press Image Above to See YouTube Demonstration
 YouTube: https://youtu.be/Q1dEI1ByO1c
 
 Documentation: https://docs.google.com/document/d/1g9_we1CssqAfudTRQSUoFrrmxCigm2QPvng0YQ_Qq3U/edit?usp=sharing
-
-LinkedIn: www.linkedin.com/in/antoniovillarreal2021
